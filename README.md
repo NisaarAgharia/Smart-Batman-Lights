@@ -14,3 +14,5 @@
 ![ezgif com-gif-maker](https://user-images.githubusercontent.com/22457544/137613279-dc329cac-7d8d-4894-b01d-c0e2e414a12d.gif)
 
 ![20200625_011902](https://user-images.githubusercontent.com/22457544/137613216-c434889d-ec1b-4f9a-993d-7d33972007ca.jpg)
+![wfh Setup 2](https://user-images.githubusercontent.com/22457544/150728730-c2e0a28c-6acf-4759-bb06-34661cb0c419.gif)
+![WFH Setup](https://user-images.githubusercontent.com/22457544/150728875-1da16fc0-a872-40b7-8655-a6e091523b5b.gif)
